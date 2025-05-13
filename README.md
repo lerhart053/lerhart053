@@ -1,4 +1,4 @@
-### Hi, I'm Lianna Lu!
+### Hi, I'm Lianna Erhart!
 
 🎓 Studied Management Information Systems at the University of Minnesota, USA </br>
 💼 3 years of experience in Consulting Services </br>
